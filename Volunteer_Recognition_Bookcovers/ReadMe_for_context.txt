@@ -1,0 +1,1 @@
+I volunteer at the Annerley Community Bookshop.  Last year the committee decided to recognise the contributions of the long term volunteers.  The comittee president gave me the people's names, book titles, and a photo of each to work with.  From that I created these mock book covers which we framed and presented to the recipients. 
